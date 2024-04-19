@@ -1,4 +1,4 @@
-- 📫 Reach me on discord `Iris#0410 | https://discord.gg/yyuggrH`
+- 📫 Reach me on discord `iri.s | https://discord.gg/yyuggrH`
 
 - 💻 View my website [here](https://irisapp.ca)
 
